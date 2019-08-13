@@ -1,0 +1,2 @@
+# root
+ne bakiyon oç
